@@ -5,3 +5,5 @@ ur mom
 idk what happenned I want to cry wuuuuuuuuuuuu
 
 doing slide 34 nowww
+
+What does it mean by conflict? We fight???
