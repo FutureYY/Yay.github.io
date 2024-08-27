@@ -9,3 +9,5 @@ doing slide 34 nowww
 What does it mean by conflict? We fight???
 
 I made a change tooo - y
+
+i need to shit
